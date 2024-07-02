@@ -1,7 +1,6 @@
 # Hi there 👋 你好！
-> Welcome!I'm a high school students from Jiangsu,China.In the next six months, I will face the national unified examination for general college admissions.So i cannot replay your message in time.
-
-> 欢迎！我是一名来自中国江苏的高中生。在最近半年我就要面临高考了，所以我不能及时地回复你的信息，请谅解！
+> Welcome!
+> 欢迎！
 
 # Personal Information 😋 个人信息
 
