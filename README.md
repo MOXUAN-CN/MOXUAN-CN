@@ -14,7 +14,7 @@
 
 > 🌈Sexual orientation: 🏳️‍🌈
 
-> 🎮:Frequently play video games: Destiny 2/Apex/Minecraft
+> 🎮:Frequently play video games: Destiny 2/Apex/Minecraft/Overwatch 2
 
 > 🔊:Language is usually used: Chinese
 # 📫 Link
