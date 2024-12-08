@@ -8,6 +8,8 @@
 
 > ✨Like: Furry
 
+> 🏫School:Nanjing Forestry University
+
 > 🎈Hobby: video game/Painting/Design
 
 > 🌈Sexual orientation: 🏳️‍🌈
