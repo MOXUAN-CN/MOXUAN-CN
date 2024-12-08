@@ -4,7 +4,7 @@
 
 # Personal Information 😋 个人信息
 
-> 🙂Age: 17
+> 🙂Age: 18
 
 > ✨Like: Furry
 
