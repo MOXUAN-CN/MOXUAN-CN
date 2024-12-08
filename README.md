@@ -10,7 +10,7 @@
 
 > 🏫School:Nanjing Forestry University
 
-> 🎈Hobby: video game/Painting/Design
+> 🎈Hobby: Video game/Painting/Design
 
 > 🌈Sexual orientation: 🏳️‍🌈
 
